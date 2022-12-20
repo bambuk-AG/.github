@@ -1,1 +1,1 @@
-# Wellcum in Babuk AG
+# Wellcum in Babuk
